@@ -1,4 +1,1 @@
-# HarenUptime
-210 affetmez
-https://discord.gg/uptimebot
-https://discord.gg/210
+Benim altyapımı ben yokken çalıp paylaşan kocs yürekli OWNWNSKZJSJWNNWNS pardon koca yürekli kişi
