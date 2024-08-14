@@ -1,1 +1,1 @@
-Benim altyapımı ben yokken çalıp paylaşan kocs yürekli OWNWNSKZJSJWNNWNS pardon koca yürekli kişi
+Benim altyapımı ben yokken çalıp paylaşan koca yürekli OWNWNSKZJSJWNNWNS pardon koca yürekli kişi
